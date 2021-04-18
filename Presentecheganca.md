@@ -50,4 +50,6 @@ No bailar incandescente das estrelas
 se desvela a mais querida.  
 De tão complexa, se simplifica  
 diante dos nossos olhos   
-na forma de um guia.
+na forma de um guia.  
+
+*Mariana Andraus, 31/03/2021*
