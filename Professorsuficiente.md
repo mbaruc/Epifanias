@@ -22,4 +22,4 @@ Zelo para que minha influência seja apenas suficiente.
 
 *Mariana Andraus, 12/04/2021*  
 
-Publicado em 12/04/2021 - [Perfil Pessoal no Facebook] (https://www.facebook.com/photo?fbid=10160782104487678&set=a.10151642957737678)
+Publicado em 12/04/2021 - [Perfil Pessoal no Facebook](https://www.facebook.com/photo?fbid=10160782104487678&set=a.10151642957737678)
