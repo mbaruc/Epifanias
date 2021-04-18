@@ -1,3 +1,3 @@
 # Epifanias
 
-Repositório de ensaios e poemas não acadêmicos.
+Repositório de poemas e ensaios não acadêmicos.
