@@ -4,7 +4,9 @@ Em tempos de influenciadores, como é bom ser professor.
 
 A gente aprende desde muito cedo a apontar caminhos e aguardar para ver quais deles cada aluno escolherá percorrer.  
 
-Alguns fazem escolhas semelhantes às suas. Outros escolhem caminhos muito diferentes. Há quem escolha caminhos que você nunca ousou ou ousaria seguir.   
+Alguns fazem escolhas semelhantes às suas. Outros escolhem caminhos muito diferentes.  
+
+Há quem escolha caminhos que você nunca ousou ou ousaria seguir.   
 
 Há quem escolha caminhos conhecidos, e como é bom pisá-los novamente com passos mais maduros, testemunhando o encantamento de quem neles toca seus pés pela primeira vez.  
 
