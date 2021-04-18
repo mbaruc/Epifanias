@@ -20,5 +20,6 @@ Que vírus esperto!
 Aproveita-se de uma sociedade que muito pouco sabe sobre a arte de se colocar no espaço com plena consciência. Uma sociedade que não sabe muito bem como dançar para enfraquecê-lo e eliminá-lo.  
 
 *Mariana Andraus, 18/04/2021*  
-Publicado em [Perfil no Facebook] (https://www.facebook.com/mariana.b.andraus/posts/10160797515292678?notif_id=1618670665247970&notif_t=feedback_reaction_generic&ref=notif)
+
+Publicado em 18/04/2021 - [Perfil Pessoal no Facebook] (https://www.facebook.com/mariana.b.andraus/posts/10160797515292678?notif_id=1618670665247970&notif_t=feedback_reaction_generic&ref=notif)
 
