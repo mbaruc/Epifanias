@@ -13,4 +13,4 @@ Ser livre é o melhor exemplo que posso dar.
 
 *Mariana Andraus, 20/04/2021*
 
-Publicado em [Página Pessoal no Facebook](https://www.facebook.com/photo/?fbid=10160805509377678&set=a.10151642957737678)
+Publicado em 20/04/2021 - [Página Pessoal no Facebook](https://www.facebook.com/photo/?fbid=10160805509377678&set=a.10151642957737678)
