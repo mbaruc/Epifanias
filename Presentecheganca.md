@@ -53,3 +53,5 @@ diante dos nossos olhos
 na forma de um guia.  
 
 *Mariana Andraus, 31/03/2021*
+
+Publicado em 18/04/2021, como narração, em [Instagram aeupt.aeuss](https://www.instagram.com/p/CN0RNtWnvZC/)
