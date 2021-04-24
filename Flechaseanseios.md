@@ -24,5 +24,5 @@ O artista que lute para entender o que lhe acontece.
 
 *Mariana Andraus, 24/04/2021*  
 
-Publicado em [Página pessoal - Facebook](https://www.facebook.com/photo/?fbid=10160817001122678&set=a.10151102414517678)  
+Publicado em 24/04/2021 - [Página pessoal - Facebook](https://www.facebook.com/photo/?fbid=10160817001122678&set=a.10151102414517678)  
 
