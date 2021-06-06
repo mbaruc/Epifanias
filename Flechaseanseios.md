@@ -10,11 +10,11 @@ Das divergências nascem as maiores riquezas. É crucial o esforço em fazer com
 
 Citar áreas de conhecimento para validar opiniões é um procedimento genérico e frágil.  
 
-A Medicina não tem opinião única sobre temas. Assim como a Linguística também não, ou quaisquer outras áreas.  
+A medicina não tem opinião única sobre temas. Assim como a linguística também não, ou quaisquer outras áreas.  
 
-Falo da Arte com mais segurança: nada tem de homogênea. É uma das áreas mais cheias de dissensos, fricções e conceitos não partilhados de que tenho conhecimento. Cada pesquisa é um universo em si. É diversidade em seu sentido mais arcaico, essencial e profundo.  
+Falo da arte com mais segurança: nada tem de homogênea. É uma das áreas mais cheias de dissensos, fricções e conceitos não partilhados de que tenho conhecimento. Cada pesquisa é um universo em si. É diversidade em seu sentido mais arcaico, essencial e profundo.  
 
-A Arte se diferencia e identifica pelo domínio da técnica por parte do artista. Domínio em sentido amplo, que permite escolher qual técnica usar, e até mesmo se quer usar alguma técnica ou não. E fazer isso a cada acontecimento, a cada momento singular.  
+A arte se diferencia e identifica pelo domínio da técnica por parte do artista. Domínio em sentido amplo, que permite escolher qual técnica usar, e até mesmo se quer usar alguma técnica ou não. E fazer isso a cada acontecimento, a cada momento singular.  
 
 Acontecimentos são faíscas, vagalumes cuja natureza é de serem percebidos por quem está suficientemente atento... ou suficientemente distraído. Arte é sobre liberdade em seu sentido mais fugaz.  
 
