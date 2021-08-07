@@ -3,4 +3,4 @@ Há 12 anos você parecia um pacotinho que eu levava pra lá e pra cá. Com sua 
 
 *Mariana Andraus, 18/10/2018.*
 
-Publicado em [Facebook - Página Pessoal](https://www.facebook.com/mariana.b.andraus/posts/10157817083987678)
+Publicado em 18/10/2018 em [Facebook - Página Pessoal](https://www.facebook.com/mariana.b.andraus/posts/10157817083987678)
