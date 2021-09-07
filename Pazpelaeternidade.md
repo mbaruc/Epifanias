@@ -20,7 +20,7 @@ Este tempo nos pede que entendamos melhor o que é namastê, ou que é nasmaskar
 
 Sobre a imagem, escolhi-a pelo contraste do verde com o azul sob a luz do sol. Honremos nossas matas e o anil do céu puro que elas ainda nos propiciam.  
 
-O que a eternidade nos pede é paz.  
+A eternidade nos pede paz.  
 
 *Mariana Andraus, 07/09/2021.*
 
