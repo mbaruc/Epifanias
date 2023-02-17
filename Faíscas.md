@@ -14,4 +14,4 @@ Minha natureza altamente questionadora jamais me impediu de acreditar no amor, e
 
 E a rede social definitivamente não é meu campo de batalha.
 
-Publicado originalmente em 17/02/2023 no [Facebook - Página Pessoal][https://www.facebook.com/mariana.b.andraus/posts/pfbid0PMKP3rqrUyEBtAKueQi6Hu34VYC9DtubCSRFmy6qjXCBnhUW5HUrARXn1L7oj3kYl]
+*Publicado originalmente em 17/02/2023 no [Facebook - Página Pessoal]*(https://www.facebook.com/mariana.b.andraus/posts/pfbid0PMKP3rqrUyEBtAKueQi6Hu34VYC9DtubCSRFmy6qjXCBnhUW5HUrARXn1L7oj3kYl)
