@@ -17,7 +17,7 @@ Evidentemente, quando esse assunto se embola com a questão religiosa se torna u
 
 Se continuarmos por aí, em breve seremos testemunhas da morte completa do afeto (no sentido spinoziano), uma sociedade ascética assumida e definitivamente infeliz, que se contenta exclusivamente com biscoitos nas vitrines sociodigitais e cancela digitalmente tudo que a cultura de massas exigir que seja cancelado.
 
-Quem perde? A diversidade cultural humana e, num médio prazo, a espécie e suas demandas de sobrevivência neste planeta que se torna cada vez menor e mais demandante de conciliações (e não de guerras).
+Quem perde? A diversidade cultural humana e, num médio prazo, a espécie e suas demandas de sobrevivência neste planeta, que se torna cada vez menor e mais demandante de conciliações (e não de guerras).
 
 Abuso sexual existe e deve ser combatido. No entanto, quando partimos para o campo minado dos palpites da internet, é bem mais comum vermos a sexualização no olhar de quem observa o comportamento alheio e acredita que as próprias neuroses são régua para medir e julgar a todos, pois o campo opinativo é completamente dado à falácia da generalização apressada, e não tanto situações reais de violência (até porque estas PRECISAM ser protegidas pelo Estado para preservação da própria vítima).
 
